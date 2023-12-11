@@ -1,0 +1,2 @@
+# lojinhaprincipal
+vendas e estudos
